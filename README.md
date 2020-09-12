@@ -1,1 +1,1 @@
-# DUMMY TEXT
+Sanzhar Kosmanov 190107026
